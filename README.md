@@ -46,7 +46,7 @@ Trust is everything. We aim to **restore business and consumer confidence** in t
 ---
 
 ### Join Us
-Cybermate is dedicated to making cyber security simple, affordable, and effective. Join us in our mission to create a safer digital landscape for everyone. Visit [Cybermate](https://cybermate.com) to learn more.
+Cybermate is dedicated to making cyber security simple, affordable, and effective. Join us in our mission to create a safer digital landscape for everyone. Visit [Cybermate](https://cybermate.com.au) to learn more.
 
 ---
 
